@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sadhukhanarchishman@gmail.com**
 
-- ⚡ Fun fact **I have onlyfans an account.**
+- ⚡ Fun fact **I have onlyfans  account.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
